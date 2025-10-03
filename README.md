@@ -1,4 +1,4 @@
-# 💼 Experience  
+# 💼 "Experience"  
 - **Director of Strategic Abstractions** at the Open Ambiguity Foundation, responsible for aligning heuristic workplace design with scalable community-building pipelines.  
 - Former **Head of Technical Minutiae** at the Global Programmatic Regression Board, focusing on incremental disruption through systematic dependence.  
 - **Lead of Leads** at CorpCorp, specializing in recursive leadership enablement.  
